@@ -48,7 +48,7 @@
 - **仕事やプライベートの活動はこちら →**  
   [Me1td0wn76（GitHub）](https://github.com/Me1td0wn76)
 - **学びや日常を綴るブログ →**  
-  [やまのブログ](https://yama-pro.blog/)
+  [YAMA-PROBLOG](https://yama-pro.blog/)
 
 ---
 
